@@ -17,7 +17,7 @@ attention. director wifies speaking , our universe is unstable .
 + you may c + h me unless i`m already with my oomfs .
 
 interacts , :: ( fandoms . -
-unstable smp , minecraft , gravity falls , amoung us ( show ) , searching for a world that doesn't exist , destroying a world that doesn't exist , ponytown , how to train your dragon , roblox , work at a pizza place , dandys world ( iwc unless friend / oomf . ) forsaken , ( same with dandys world , ) it's not me it's my basement , crow scare , your bofriend , phighting , dodge wifies to save parrot or it's all yours , house of puso ( iwc unless oomf . ) may madness 2012 , mindless self indulgence , ( i do not support ANYTHING jimmy or the other members have done . ) stomach book , wings of fire , PLEASE DO INTERACT IF YOU'RE A THREE DAYS GRACE , LINKIN PARK , OR SKILLET FAN !!! 
+unstable smp , pizza game beta , minecraft , gravity falls , amoung us ( show ) , searching for a world that doesn't exist , destroying a world that doesn't exist , ponytown , how to train your dragon , roblox , work at a pizza place , dandys world ( iwc unless friend / oomf . ) forsaken , ( same with dandys world , ) it's not me it's my basement , crow scare , your bofriend , phighting , dodge wifies to save parrot or it's all yours , house of puso ( iwc unless oomf . ) may madness 2012 , mindless self indulgence , ( i do not support ANYTHING jimmy or the other members have done . ) stomach book , wings of fire , PLEASE DO INTERACT IF YOU'RE A THREE DAYS GRACE , LINKIN PARK , OR SKILLET FAN !!! 
 
 do not interact if , :: 
 dream smp , hazbin hotel , helluva boss , you don't respect boundaries or are homophobic , transphobic , or ableist .  wcue , ( HEAVY IWC . )
