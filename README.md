@@ -1,4 +1,4 @@
-![image alt]https://github.com/wifiessss/asset-/blob/8f82aca7604a963e608e33bdd5ef79f0a378941c/04e9ba77618dff4917836618b7084fa9.webp.jpg]
+
 
 + lyric of the month --
 +                     |
