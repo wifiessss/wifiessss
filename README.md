@@ -1,3 +1,8 @@
++ lyric of the month --
++                     |
++                     v
++ ' ' bitter choco decoration , just eat it all, don`t mutter a word . ' '
+
 attention. director wifies speaking , our universe is unstable . 
 
 + azure fictkin and a wifies kin .
