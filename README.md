@@ -74,4 +74,6 @@ favorite songs / songs that i play on repeat all the time !! ::
 don`t mind the fact that most of these are three days grace songs ,, they've been my favorite band since i was 5
 
 
+![Alt text](https://github.com/wifiessss/wifiessss/blob/27076c860b26df4dfa486ea4bd63c4d0396d1ab9/Screenshot_20260628_150751_YouTube.jpg)
 
+' ' this is really bad ! i have to get out , quick ! ' '
