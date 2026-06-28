@@ -69,7 +69,7 @@ favorite songs / songs that i play on repeat all the time !! ::
 + bitter choco decoration by syudou
 
 
-don`t mind the fact that most of these are three days grace songs ,, they've been my favorite band since i was 9 
+don`t mind the fact that most of these are three days grace songs ,, they've been my favorite band since i was 5
 
 
 
