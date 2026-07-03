@@ -1,4 +1,4 @@
-0![Alt text](https://github.com/wifiessss/asset-/blob/98adceb5cbcb097af7c3b74450100c048305645d/ba03460ed5d0a8cba5196a02117fe9a3.jpg)
+![Alt text](https://github.com/wifiessss/asset-/blob/98adceb5cbcb097af7c3b74450100c048305645d/ba03460ed5d0a8cba5196a02117fe9a3.jpg)
 
 + lyric of the month --
 +                     |
