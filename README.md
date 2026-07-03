@@ -1,21 +1,23 @@
-![Alt text](https://github.com/wifiessss/wifiessss/blob/1e7a2c431dc649de7332f192a49a0d13a94a8d05/04e9ba77618dff4917836618b7084fa9.webp.jpg)
+![Alt text](https://github.com/wifiessss/asset-/blob/98adceb5cbcb097af7c3b74450100c048305645d/ba03460ed5d0a8cba5196a02117fe9a3.jpg)
 
 + lyric of the month --
 +                     |
 +                     v
-+ ' ' SHINDA HENSU DE  K U R I K A E S U  . ' '
++ ' ' didn`t take that well XD ! ' '
 
-attention. director wifies speaking , our universe is unstable . 
+manepearr here , AAAAA - 
 
-+ azure fictkin and a wifies kin .
-
++ azure fictkin , I'm lowk just like manepear cause all i do is explore the refrigerator
+  
 + 15 years old , DNI IF OVER 18+ ( unless you are a VERY close friend . )
 
 + wanna wish me a happy birthday ?
 + september 10th 
 
 + alias. ::
-+ wifies , / azure , / isaac , / wemmbu ,
++ zam , zammy / manepear , / wifies , / azure , / isaac , / wemmbu ,
+
++  KNOWN FOR MY MANLY FUCKING SCREAMS
 
 + pronouns , ::
 + he / they , please only use these pronouns on me . 
@@ -74,6 +76,6 @@ favorite songs / songs that i play on repeat all the time !! ::
 don`t mind the fact that most of these are three days grace songs ,, they've been my favorite band since i was 5
 
 
-![Alt text](https://github.com/wifiessss/wifiessss/blob/27076c860b26df4dfa486ea4bd63c4d0396d1ab9/Screenshot_20260628_150751_YouTube.jpg)
+![Alt text](https://github.com/wifiessss/wifiessss/blob/c631c73684a4e99f438ac06399921407365bff26/29dc5efd924f002f327190b12341a470.jpg)
 
 ' ' this is really bad ! i have to get out , quick ! ' '
