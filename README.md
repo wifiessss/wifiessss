@@ -1,4 +1,4 @@
-![Alt text](https://github.com/wifiessss/asset-/blob/98adceb5cbcb097af7c3b74450100c048305645d/ba03460ed5d0a8cba5196a02117fe9a3.jpg)
+0![Alt text](https://github.com/wifiessss/asset-/blob/98adceb5cbcb097af7c3b74450100c048305645d/ba03460ed5d0a8cba5196a02117fe9a3.jpg)
 
 + lyric of the month --
 +                     |
@@ -78,4 +78,6 @@ don`t mind the fact that most of these are three days grace songs ,, they've bee
 
 ![Alt text](https://github.com/wifiessss/wifiessss/blob/c631c73684a4e99f438ac06399921407365bff26/29dc5efd924f002f327190b12341a470.jpg)
 
-' ' this is really bad ! i have to get out , quick ! ' '
+' ' this is so unbelievably terrifying ,,' '
+
+THERE IS BEAUTY IN THE SEAMS , AND THERES BEAUTY WHEN IT BLEEDS . 
