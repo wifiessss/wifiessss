@@ -44,7 +44,7 @@ do not force religion or homophobia on me . do NOT ship me with my fucking frien
 favorite songs / songs that i play on repeat all the time !! ::
 
 + any of the big brother fnf mod osts
---- usually power through ^
++--- usually power through ^
 + kutmuziek by joost ( ? )
 + bitter taste by three days grace
 + infra-red by three days grace
