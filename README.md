@@ -72,7 +72,7 @@ favorite songs / songs that i play on repeat all the time !! ::
 + aishiteitanoni by maretu
 + new darling by maretu
 + darling by maretu
-+ purpose by 9lana ( cover )
++ purpose by 9lana ( cover ) 
 + bitter choco decoration by syudou
 
 
