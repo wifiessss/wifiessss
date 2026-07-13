@@ -1,4 +1,4 @@
-[Alt text](https://github.com/wifiessss/wifiessss/blob/7bc9aefc2124a5447e1b4b98c26cc30951642b4d/d702911d7c9f5105ab047b52fe37e149.jpg)
+![Alt text](https://github.com/wifiessss/wifiessss/blob/7bc9aefc2124a5447e1b4b98c26cc30951642b4d/d702911d7c9f5105ab047b52fe37e149.jpg)
 
 + lyric of the month --
 +                     |
@@ -78,11 +78,11 @@ favorite songs / songs that i play on repeat all the time !! ::
 
 don`t mind the fact that most of these are three days grace songs ,, they've been my favorite band since i was 5
 
-[Alt text](https://github.com/wifiessss/wifiessss/blob/7bc9aefc2124a5447e1b4b98c26cc30951642b4d/Screenshot_20260712_022702_Spotify.jpg)
+![Alt text](https://github.com/wifiessss/wifiessss/blob/7bc9aefc2124a5447e1b4b98c26cc30951642b4d/Screenshot_20260712_022702_Spotify.jpg)
 
 + BEST SOUNDTRACK EVERR ^^^^
 
-  [Alt text](https://github.com/wifiessss/wifiessss/blob/8ae55b25da1895c3bedd171681e973f63f4bb77d/images%20(7).jpeg)
+![Alt text](https://github.com/wifiessss/wifiessss/blob/8ae55b25da1895c3bedd171681e973f63f4bb77d/images%20(7).jpeg)
 
   ' ' huh , good question , why we livin' in a dj ressesion ?? ' ' 
 
