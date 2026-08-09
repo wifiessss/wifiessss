@@ -15,7 +15,7 @@ mob
 + september 10th 
 
 + alias. ::
-+ i NO LONGER GO BY AZURE !! i go by :: crufificton / crucificc , preferably .  -  mob , that mob , / zam , zammy / manepear , / wifies , / isaac , / wemmbu , wemmy , bu , / itrapped ,
++ i NO LONGER GO BY AZURE !! i go by :: crucible , crufificton / crucificc , preferably .  -  mob , that mob , / zam , zammy / manepear , / wifies , / isaac , / wemmbu , wemmy , bu , / itrapped ,
 
 +  cool horror mods ,, and verity
 
