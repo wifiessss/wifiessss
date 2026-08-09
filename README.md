@@ -7,7 +7,7 @@
 
 mob 
 
-+ azure fictkin , mob fictkin ( ? )
+ mob fictkin ( ? )
   
 + 15 years old , DNI IF OVER 18+ ( unless you are a VERY close friend . )
 
@@ -15,7 +15,7 @@ mob
 + september 10th 
 
 + alias. ::
-+ mob , that mob , / zam , zammy / manepear , / wifies , / azure , / isaac , / wemmbu , wemmy , bu , / itrapped ,
++ i NO LONGER GO BY AZURE !! i go by :: crufificton / crucificc , preferably .  -  mob , that mob , / zam , zammy / manepear , / wifies , / isaac , / wemmbu , wemmy , bu , / itrapped ,
 
 +  cool horror mods ,, and verity
 
@@ -31,7 +31,7 @@ mob
 + you may c + h me unless i`m already with my oomfs .
 
 interacts , :: ( fandoms . -
-sikayd / the verity series , unstable smp , limbus company , pizza game beta , minecraft , gravity falls , amoung us ( show ) , searching for a world that doesn't exist , destroying a world that doesn't exist , ponytown , how to train your dragon , roblox , work at a pizza place , dandys world ( iwc unless friend / oomf . ) forsaken , ( same with dandys world , ) it's not me it's my basement , crow scare , your bofriend , phighting , dodge wifies to save parrot or it's all yours , house of puso ( iwc unless oomf . ) may madness 2012 , mindless self indulgence , ( i do not support ANYTHING jimmy or the other members have done . ) stomach book , bl , wl , upchurch , wings of fire , PLEASE DO INTERACT IF YOU'RE A THREE DAYS GRACE , LINKIN PARK , OR SKILLET FAN !!! 
+sikayd / the verity series , lifesteal smp , unstable smp , limbus company , pizza game beta , minecraft , gravity falls , amoung us ( show ) , searching for a world that doesn't exist , destroying a world that doesn't exist , ponytown , how to train your dragon , roblox , work at a pizza place , dandys world ( iwc unless friend / oomf . ) forsaken , ( same with dandys world , ) it's not me it's my basement , crow scare , your bofriend , phighting , dodge wifies to save parrot or it's all yours , house of puso ( iwc unless oomf . ) may madness 2012 , mindless self indulgence , ( i do not support ANYTHING jimmy or the other members have done . ) stomach book , bl , wl , upchurch , wings of fire , PLEASE DO INTERACT IF YOU'RE A THREE DAYS GRACE , LINKIN PARK , OR SKILLET FAN !!! 
 
 do not interact if , :: 
 proshipper , you sit at the weird people tree in pt , darkshipper , dream smp , hazbin hotel , helluva boss , you don't respect boundaries or are homophobic , transphobic , or ableist .  wcue , ( HEAVY IWC . )
