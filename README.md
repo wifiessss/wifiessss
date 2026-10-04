@@ -26,7 +26,7 @@ $\color{red}{\text{space}}$
 + he / they , please only use these pronouns on me . 
 
 + flags , :: 
-+ $\color{pink}{\text{pan}}$ $\color{yellow}{\text{sex}}$ $\color{light yellow}{\text{ual}}$ , more attracted to nonbinaries and women . 
++ $\color{pink}{\text{pan}}$ $\color{yellow}{\text{sex}}$ $\color{blue}{\text{ual}}$ , more attracted to nonbinaries and women . 
 + nonbinary and transgender .
 + aroace .
 + ally .
