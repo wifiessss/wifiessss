@@ -4,7 +4,7 @@
 +                     |
 +                     v
 +                 
-+ ' ' I WILL KILL YOU WHERE YOU STAND .  ' '
++ $\color{red}{\text{' ' I WILL KILL YOU WHERE YOU STAND . ' ' }}$.
 
 + ' ' i can't believe my eyes ! it's alright, I'll be fine ! ' ' 
 
@@ -107,13 +107,3 @@ and my profile pic ::
 
 
 
-
-
-
-
-
-
-
-
-text  
-$\color{cyan}{\text{inline colored text}}$.
