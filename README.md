@@ -87,3 +87,20 @@ don`t mind the fact that most of these are three days grace songs ,, they've bee
 
 
 subkit  +  past subspace pinterest  gallery  -- ::
+
+![Alt text](https://github.com/wifiessss/wifiessss/blob/356f37275fc340a0658bd866822f25bf98613a37/9021b45e4da55a323df466e74295a262.jpg)
+
+![Alt text](https://github.com/wifiessss/wifiessss/blob/356f37275fc340a0658bd866822f25bf98613a37/9c9eb8fc5a16226a41e408482a295447.jpg)
+
+![Alt text](https://github.com/wifiessss/wifiessss/blob/356f37275fc340a0658bd866822f25bf98613a37/c6c9988c00d3d994b0b2daea8ca9894e.jpg)
+
+![Alt text](https://github.com/wifiessss/wifiessss/blob/356f37275fc340a0658bd866822f25bf98613a37/dabf9ba87d54787c69f19b7d70c4b59f.jpg)
+
+![Alt text](https://github.com/wifiessss/wifiessss/blob/356f37275fc340a0658bd866822f25bf98613a37/dfd4e93a3ad5267c97d8493c4a72ef61.jpg)
+
+![Alt text](https://github.com/wifiessss/wifiessss/blob/356f37275fc340a0658bd866822f25bf98613a37/f92ee49e37023b46593892c9a25ccd5a.jpg)
+
+
+and my profile pic ::
+
+![Alt text](https://github.com/wifiessss/wifiessss/blob/aa3d10aeecb5ac94792ca9327e003cabfb5ce0dc/6292c565169f4fa9630eec7bbbf253ee.jpg)
