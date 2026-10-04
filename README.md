@@ -8,17 +8,17 @@
 
 + $\color{pink}{\text{' ' i can't believe my eyes ! it's alright, I'll be fine ! ' ' }}$.
 
-space 
+$\color{red}{\text{space}}$
 
- subspace fictkin 
+ $\color{red}{\text{subspace}}$ fictkin 
   
 + 16 years old , DNI IF OVER 18+ ( unless you are a VERY close friend . )
 
 + wanna wish me a happy birthday ?
-+ september 10th 
++ $\color{orange}{\text{sept 10th}}$
 
 + alias. ::
-+  i go by :: crucible , crufificton / crucificc  and preferably subspace .   ) .  -   , evilspace , / zam , zammy / manepear , / wifies , / isaac , / wemmbu , wemmy , bu , / itrapped , chud , chungie 
++  i go by :: crucible , crufificton / crucificc  and preferably subspace .   ) .  -   , evilspace , / zam , zammy / manepear , / $\color{purple}{\text{wifies}}$ , / $\color{blue}{\text{isaac}}$ , / $\color{purple}{\text{wemmbu}}$ , $\color{purple}{\text{wemmy}}$ , bu , / itrapped , chud , chungie 
 
 +  the man behind the eye ripping
 
