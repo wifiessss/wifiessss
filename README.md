@@ -18,9 +18,9 @@ $\color{red}{\text{space}}$
 + $\color{orange}{\text{sept 10th}}$
 
 + alias. ::
-+  i go by :: crucible , crufificton / crucificc  and preferably subspace .   ) .  -   , evilspace , / zam , zammy / manepear , / $\color{purple}{\text{wifies}}$ , / $\color{blue}{\text{isaac}}$ , / $\color{purple}{\text{wemmbu}}$ , $\color{purple}{\text{wemmy}}$ , bu , / itrapped , chud , chungie 
++  i go by :: crucible , crufificton / crucificc  and preferably subspace .   ) .  -   , evilspace , / zam , zammy / manepear , / $\color{purple}{\text{wifies}}$ , / $\color{blue}{\text{isaac}}$ , / $\color{purple}{\text{wemmbu}}$ , $\color{purple}{\text{wemmy}}$ , $\color{purple}{\text{bu}}$ , / $\color{blue}{\text{itrapped}}$. , chud , chungie 
 
-+  the man behind the eye ripping
++  the man behind the $\color{black}{\text{eye ripping . }}$.
 
 + pronouns , ::
 + he / they , please only use these pronouns on me . 
