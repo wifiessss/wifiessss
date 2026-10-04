@@ -1,23 +1,26 @@
-![Alt text](https://github.com/wifiessss/wifiessss/blob/7bc9aefc2124a5447e1b4b98c26cc30951642b4d/d702911d7c9f5105ab047b52fe37e149.jpg)
+[Alt text](https://github.com/wifiessss/wifiessss/blob/97b770251595b0c9f8f930cb02019f456659126c/9eff54895758d97ac683c1851e9ff6c1.jpg)
 
-+ lyric of the month --
++ lyrics of the month --
 +                     |
 +                     v
-+ ' ' didn`t take that well XD ! ' '
++                 
++ ' ' I WILL KILL YOU WHERE YOU STAND .  ' '
 
-mob 
++ ' ' i can't believe my eyes ! it's alright, I'll be fine ! ' ' 
 
- mob fictkin ( ? )
+space 
+
+ subspace fictkin 
   
-+ 15 years old , DNI IF OVER 18+ ( unless you are a VERY close friend . )
++ 16 years old , DNI IF OVER 18+ ( unless you are a VERY close friend . )
 
 + wanna wish me a happy birthday ?
 + september 10th 
 
 + alias. ::
-+ i NO LONGER GO BY AZURE !! i go by :: crucible , crufificton / crucificc , preferably .  -  mob , that mob , / zam , zammy / manepear , / wifies , / isaac , / wemmbu , wemmy , bu , / itrapped ,
++  i go by :: crucible , crufificton / crucificc  and preferably subspace .   ) .  -   , evilspace , / zam , zammy / manepear , / wifies , / isaac , / wemmbu , wemmy , bu , / itrapped , chud , chungie 
 
-+  cool horror mods ,, and verity
++  the man behind the eye ripping
 
 + pronouns , ::
 + he / they , please only use these pronouns on me . 
@@ -31,14 +34,14 @@ mob
 + you may c + h me unless i`m already with my oomfs .
 
 interacts , :: ( fandoms . -
-sikayd / the verity series , lifesteal smp , unstable smp , limbus company , pizza game beta , minecraft , gravity falls , amoung us ( show ) , searching for a world that doesn't exist , destroying a world that doesn't exist , ponytown , how to train your dragon , roblox , work at a pizza place , dandys world ( iwc unless friend / oomf . ) forsaken , ( same with dandys world , ) it's not me it's my basement , crow scare , your bofriend , phighting , dodge wifies to save parrot or it's all yours , house of puso ( iwc unless oomf . ) may madness 2012 , mindless self indulgence , ( i do not support ANYTHING jimmy or the other members have done . ) stomach book , bl , wl , upchurch , wings of fire , PLEASE DO INTERACT IF YOU'RE A THREE DAYS GRACE , LINKIN PARK , OR SKILLET FAN !!! 
+warriors , sikayd / the verity series , lifesteal smp , unstable smp , limbus company , pizza game beta , minecraft , gravity falls , amoung us ( show ) , searching for a world that doesn't exist , destroying a world that doesn't exist , ponytown , how to train your dragon , roblox , work at a pizza place , forsaken , it's not me it's my basement , crow scare , your bofriend , phighting , dodge wifies to save parrot or it's all yours , house of puso ( iwc unless oomf . ) may madness 2012 , mindless self indulgence , ( i do not support ANYTHING jimmy or the other members have done . ) stomach book , bl , wl , upchurch , wings of fire , PLEASE DO INTERACT IF YOU'RE A THREE DAYS GRACE , LINKIN PARK , OR SKILLET FAN !!! 
 
 do not interact if , :: 
-proshipper , you sit at the weird people tree in pt , darkshipper , dream smp , hazbin hotel , helluva boss , you don't respect boundaries or are homophobic , transphobic , or ableist .  wcue , ( HEAVY IWC . )
+dandys world fan , proshipper , you sit at the weird people tree in pt , darkshipper , dream smp , hazbin hotel , helluva boss , you don't respect boundaries or are homophobic , transphobic , or ableist . 
 
 boundaries . :: ( must read before int . )
 please do not force ships on me . don't backshot me UNLESS i say you can or if you're one of my friends . once again , do not c + h me if I'm with my oomfs . do not cover me unless you're my oomf or i SPECIFICALLY say you can . 
-do not force religion or homophobia on me . do NOT ship me with my fucking friends , you're fucking DISGUSTING if you do . thank you for reading this section , sincerely , mob .
+do not force religion or homophobia on me . do NOT ship me with my fucking friends , you're fucking DISGUSTING if you do . thank you for reading this section , sincerely , subspace .
 
 
 favorite songs / songs that i play on repeat all the time !! ::
@@ -74,9 +77,11 @@ favorite songs / songs that i play on repeat all the time !! ::
 + darling by maretu
 + purpose by 9lana ( cover ) 
 + bitter choco decoration by syudou
++ string theory by valley.exe
++ stuck inside by the living tombstone ( ? )
++ trapped by the living tombstone
 
-
-don`t mind the fact that most of these are three days grace songs ,, they've been my favorite band since i was 5
+don`t mind the fact that most of these are three days grace songs ,, they've been my favorite band since i was a wee lil lad
 
 ![Alt text](https://github.com/wifiessss/wifiessss/blob/7bc9aefc2124a5447e1b4b98c26cc30951642b4d/Screenshot_20260712_022702_Spotify.jpg)
 
