@@ -6,7 +6,7 @@
 +                 
 + $\color{red}{\text{' ' I WILL KILL YOU WHERE YOU STAND . ' ' }}$.
 
-+ 
++ $\color{pink}{\text{' ' i can't believe my eyes ! it's alright, I'll be fine ! ' ' }}$.
 
 space 
 
