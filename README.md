@@ -33,6 +33,8 @@ $\color{red}{\text{space}}$
 
 + you may c + h me unless i`m already with my oomfs .
 
++ im so fucking tired no more color markdowns $\color{red}{\text{PLEASE . }}$
+
 interacts , :: ( fandoms . -
 warriors , sikayd / the verity series , lifesteal smp , unstable smp , limbus company , pizza game beta , minecraft , gravity falls , amoung us ( show ) , searching for a world that doesn't exist , destroying a world that doesn't exist , ponytown , how to train your dragon , roblox , work at a pizza place , forsaken , it's not me it's my basement , crow scare , your bofriend , phighting , dodge wifies to save parrot or it's all yours , house of puso ( iwc unless oomf . ) may madness 2012 , mindless self indulgence , ( i do not support ANYTHING jimmy or the other members have done . ) stomach book , bl , wl , upchurch , wings of fire , PLEASE DO INTERACT IF YOU'RE A THREE DAYS GRACE , LINKIN PARK , OR SKILLET FAN !!! 
 
